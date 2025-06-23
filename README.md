@@ -56,4 +56,4 @@ All rights reserved by the authors. Do not reproduce without permission.
 📫 Contact Me
 
 📧 Email:aggarwalnatasha8595@gmail.com
-🔗[My Linkedin Profile] (https://www.linkedin.com/in/natasha-aggarwal-65543a2b6?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+🔗[My Linkedin Profile](https://www.linkedin.com/in/natasha-aggarwal-65543a2b6)
